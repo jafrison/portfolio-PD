@@ -6,7 +6,7 @@
 > "Professional growth begins with self-awareness." 
 
 ## Over deze Module
-In deze module focus ik op mijn persoonlijke en professionele groei door middel van zelfreflectie en bewustwording. [cite_start]Dit portfolio groeit met mij mee tot aan mijn afstuderen.
+In deze module focus ik op mijn persoonlijke en professionele groei door middel van zelfreflectie en bewustwording. Dit portfolio groeit met mij mee tot aan mijn afstuderen.
 
 ---
 
@@ -31,7 +31,7 @@ Hieronder vind je de uitwerkingen van de wekelijkse opdrachten:
 # Week 1: Zelfbewustzijn
 
 ## 1. Hoe zie ik mezelf?
-Ik zie mezelf als iemand die [leergierig, rustig en resultaatgericht is]. Deze eigenschappen beschrijven mij het beste in mijn dagelijks leven en tijdens mijn studie.
+Ik zie mezelf als iemand die leergierig, rustig en resultaatgericht is. Deze eigenschappen beschrijven mij het beste in mijn dagelijks leven en tijdens mijn studie.
 ## 2. Hoe ervaren anderen mij?
 Van anderen (vrienden, medestudenten of collega's) hoor ik vaker terug dat ik [vul in, bijv. een goede luisteraar ben]. [cite_start]Als aandachtspunt krijg ik soms te horen dat ik [vul in, bijv. sneller om hulp mag vragen].
 
