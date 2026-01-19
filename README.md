@@ -1,12 +1,12 @@
 # Portfolio Professional Development
-**Naam:** [Jason Alidarso]  
+**Naam:** Jason Alidarso  
 **Cohort:** 2026 
 **Module:** Inter & Intra Personal Awareness 
 
 > "Professional growth begins with self-awareness." 
 
 ## Over deze Module
-In deze module focus ik op mijn persoonlijke en professionele groei door middel van zelfreflectie en bewustwording. Dit portfolio groeit met mij mee tot aan mijn afstuderen.
+In deze module focus ik op mijn persoonlijke en professionele groei door middel van zelfreflectie en bewustwording.
 
 ---
 
@@ -33,14 +33,14 @@ Hieronder vind je de uitwerkingen van de wekelijkse opdrachten:
 ## 1. Hoe zie ik mezelf?
 Ik zie mezelf als iemand die leergierig, rustig en resultaatgericht is. Deze eigenschappen beschrijven mij het beste in mijn dagelijks leven en tijdens mijn studie.
 ## 2. Hoe ervaren anderen mij?
-Van anderen (vrienden, medestudenten of collega's) hoor ik vaker terug dat ik [vul in, bijv. een goede luisteraar ben]. [cite_start]Als aandachtspunt krijg ik soms te horen dat ik [vul in, bijv. sneller om hulp mag vragen].
+Van anderen hoor ik vaker terug dat ik een goede luisteraar ben.
 
 ## 3. Wat geeft mij energie – en wat kost mij energie?
-**Energiegevers:** Ik krijg energie van [bijv. het oplossen van technische problemen of een goede samenwerking].
-**Energievreters:** Het kost mij energie als [bijv. de communicatie onduidelijk is of bij veel lawaai].
+**Energiegevers:** Ik krijg energie van het oplossen van technische problemen of een goede samenwerking.
+**Energievreters:** Het kost mij energie als de communicatie onduidelijk is of bij veel lawaai.
 
 ## 4. Hoe ga ik om met spanning of fouten?
-Wanneer ik spanning ervaar of een fout maak, dan [beschrijf je huidige reactie]. [cite_start]Wat ik in de toekomst anders zou willen doen is [beschrijf je gewenste verandering].
+Wanneer ik spanning ervaar of een fout maak, dan wordt ik nerveus of praat negatief tot mezelf. Wat ik in de toekomst anders zou willen doen is om een ander mindset te hebben van dat er altijd een oplossing is.
 
 ## 5. Mijn intentie voor deze module
-[cite_start]Mijn doel voor deze module is om bewust de volgende houding of kwaliteit mee te nemen: [bijv. openstaan voor feedback of kritischer naar mijn eigen proces kijken].
+Mijn intentie is om deze module met een open houding naar feedback te kijken. In plaats van fouten te zien als falen, wil ik ze gebruiken als leermomenten om mijn zelfbewustzijn te vergroten.
